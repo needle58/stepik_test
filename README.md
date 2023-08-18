@@ -1,1 +1,8 @@
-# stepik_test
+
+q
+w
+e
+r
+t
+y
+u
